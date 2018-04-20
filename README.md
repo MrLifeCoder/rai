@@ -1,5 +1,5 @@
 # # MultiBot by RaiC0d3r
-<br> :heavy_exclamation_mark: Edit Line 44 Add your Email Address for Add admin joomla Exploit ( Use outlook.com Mail! )  :heavy_check_mark:<br>
+
 <h3> :warning:Note! : We don't Accept any responsibility for any illegal usage.</h3><br>
 <br>
 
